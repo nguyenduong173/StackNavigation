@@ -1,6 +1,6 @@
 Thông tin
 
-- Nguyễn Hoàng Dũng - 23810310338
+- Nguyễn Đại Dương - 23810310319
 
 ### 1. Số điện thoại sai định dạng
 
